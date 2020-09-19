@@ -1,5 +1,5 @@
 1. Dasiukevich Anastasiya
-2. Cellphone number: +375295535554
+2. Cellphone number: +375295535554 Mail: nastya_d1199@mail.ru
 3. **About myself:** Positive, purposeful, sosiable person. Ready to study new and work hard to achive goals. If i can't understand or do something i will spend a lot of time until it works right. Responsible, will try to make task or work as well as it's possible. Like art, traveling and sport.  
 4. **Skills:** Basics of python, delphi, matlab, 3d modeling in solidworks. 
 5. **Work experience:** no work experience.
